@@ -6,7 +6,7 @@ layout : post
 Location : Jackson, NH<br/>
 Vertical Drop : 1200 ft<br/>
 Ascent Time : Too embarrassed to say<br/>
-Descent Time : Minutes<br/>
+Descent Time : A Few Minutes<br/>
 
 **Background:**   
 The Black Mountain Ski Trail was cut in the early 1930s by the CCC.  The Black Mountain Ski Area is on the south face of the mountain, while the trail in question is on the west.  The ski trail does not reach the summit and the guidebook claims they are not connected at all.  I wouldn\'t be surprise if you could get the ski area via the trail network and a little bit of bushwacking, but I\'m not really interested in exploring that idea. 
