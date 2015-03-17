@@ -22,5 +22,4 @@ My altimeter was never really acting right.  It showed me climbing 100 vertical 
 I could have pulled out a lighter pair of boots and swapped to appropriate cartridges on my bindings, but I didn\'t think about it until I was on the trail.  
 
 My emergency beacon worked well.  Sent messages quickly and reliably.  Unfotunately, the OK-messages were only going to me and not my wife.  That\'s a mistake on my part and the SOS message would have still worked correctly, but clearly I need to double-check these things.  
-</p>
 
