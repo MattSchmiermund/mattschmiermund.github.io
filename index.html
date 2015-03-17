@@ -1,0 +1,24 @@
+---
+title : Small Adventures
+layout : default
+---
+
+<div class="container">
+    <div class="col-xs-12 col-md-8 col-md-offset-1">
+
+        {% for post in site.posts %}
+        <p>
+            <h1>{{post.title}}</h1>
+            <h6>{{ post.date | date_to_string }}</h6>
+            <!--a href="{{ post.url }}" title="{{ post.title }}">{{ post.title }}</a-->
+            <p>
+                {{post.content}}
+            </p>
+        </p>
+        {% endfor %}
+
+    </div>
+    <div class="col-md-3">
+        I don't have the skills, experience, or money for anything particularly exciting.  But, I'm going to use this site to document the little things I do.
+    </div>
+</div>
