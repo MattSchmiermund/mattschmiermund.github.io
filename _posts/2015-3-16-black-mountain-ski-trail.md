@@ -26,7 +26,7 @@ Based on it\'s pitch alone, I would expect it to be a green at most resorts.  Ho
 <img src="/assets/blackmtn_3.jpg" class="img-responsive" alt="Bottom half of the trail">
 <h4><div class="small text-center"><em>This was near the top of the trail and is the closest thing to "interesting" that I encountered.</em></div></h4>
 
-The Black Mountain Cabin sits at 2450', marks the top of the ski trail, and given the elevation, has a near perfect view of Mount Washington.  In the summer months this cabin can reportedly sleep eight.  At the time of my visit, it was padlocked, but I imagine it could fit several more if actually needed.
+The Black Mountain Cabin sits at 2450\', marks the top of the ski trail, and given the elevation, has a near perfect view of Mount Washington.  In the summer months this cabin can reportedly sleep eight.  At the time of my visit, it was padlocked, but I imagine it could fit several more if actually needed.
 
 <img src="/assets/blackmtn_4.jpg" class="img-responsive" alt="Bottom half of the trail">
 <h4><div class="small text-center"><em>The cabin.</em></div></h4>
