@@ -14,7 +14,7 @@ The Black Mountain Ski Trail was cut in the early 1930s by the CCC.  The Black M
 **My Trip:**   
 With cold overnight temperatures (leading to crusty snow in the AM), a relatively short hike, and daylight well after 6PM, I figured a later start would work in my favor.  Skinning up was very easy, but I was definitely moving slow.  Somewhere around the half-way point, I saw another skier heading in my direction.  I stepped off the side of the trail to give him plenty of room.  We made some small talk, and that was the only person I ran into.
 
-Based on it\'s pitch alone, I would expect it to be a blue at most resorts.  However, it is ungroomed and fairly narrow at points, adding to its difficulty.
+Based on it\'s pitch alone, I would expect it to be a green at most resorts.  However, it is ungroomed and fairly narrow at points, adding to its difficulty.
 
 <img src="/assets/blackmtn_1.jpg" class="img-responsive" alt="Bottom half of the trail">
 <h4><div class="small text-center"><em>A good representation of what the trail was typically like.</em></div></h4>
