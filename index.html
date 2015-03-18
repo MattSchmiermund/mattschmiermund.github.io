@@ -9,7 +9,7 @@ layout : default
         {% for post in site.posts %}
         <p>
             <h1>{{post.title}}</h1>
-            <h6>{{ post.date | date_to_string }}</h6>
+            <h4><small>{{ post.date | date_to_string }}</small></h4>
             <!--a href="{{ post.url }}" title="{{ post.title }}">{{ post.title }}</a-->
             <p>
                 {{post.content}}
