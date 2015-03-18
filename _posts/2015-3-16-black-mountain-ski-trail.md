@@ -7,9 +7,10 @@ Location : Jackson, NH<br/>
 Vertical Drop : 1200 ft<br/>
 Ascent Time : Too embarrassed to say<br/>
 Descent Time : A Few Minutes<br/>
+Trail Distance : 1.3 miles<br/>
 
 **Background:**   
-The Black Mountain Ski Trail was cut in the early 1930s by the CCC.  The Black Mountain Ski Area is on the south face of the mountain, while the trail in question is on the west.  The ski trail does not reach the summit and the trail and ski area have a fair distance between them.
+The Black Mountain Ski Trail was cut in the early 1930s by the CCC.  While the Black Mountain Ski Area is on the south face of the mountain, the backcountry trail in question is on the west side.  The ski trail does not reach the summit and the trail and ski area have a fair distance between them.
 
 **My Trip:**   
 With cold overnight temperatures (leading to crusty snow in the AM), a relatively short hike, and daylight well after 6PM, I figured a later start would work in my favor.  Skinning up was very easy, but I was definitely moving slow.  Somewhere around the half-way point, I saw another skier heading in my direction.  I stepped off the side of the trail to give him plenty of room.  We made some small talk, and that was the only person I ran into.
@@ -24,6 +25,8 @@ Based on it\'s pitch alone, I would expect it to be a green at most resorts.  Ho
 
 <img src="/assets/blackmtn_3.jpg" class="img-responsive" alt="Bottom half of the trail">
 <h4><div class="small text-center"><em>This was near the top of the trail and is the closest thing to "interesting" that I encountered.</em></div></h4>
+
+The Black Mountain Cabin sits at 2450', marks the top of the ski trail, and given the elevation, has a near perfect view of Mount Washington.  In the summer months this cabin can reportedly sleep eight.  At the time of my visit, it was padlocked, but I imagine it could fit several more if actually needed.
 
 <img src="/assets/blackmtn_4.jpg" class="img-responsive" alt="Bottom half of the trail">
 <h4><div class="small text-center"><em>The cabin.</em></div></h4>
