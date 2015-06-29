@@ -20,10 +20,10 @@ The rain started pounding down on the roof while we in the show.  Thankfully, by
 By the time the show was over the rain was done we deciding that we were both pretty much done as well.  We opted for one more go on the Millenium Force before the line built up again and then we headed back to Michigan.
 
 Some general thoughts:
-   -Where the fuck did the paddle wheel boat go?  Those awful puns were a perfect way to rest for a little bit.  
-   -As a kid, I enjoyed the No Fear, Big Johnson and Coed Naked shirts.  As an adult, I realize that's a fad that we collectively can do without.
-   -No couples in matching outfits.  Even back then, I knew it was cringy.
-   -In general, people seemed to be dressed more appropriately than they were back in the day.
-   -Considerably more polite crowd than what I've seen at Six Flags NJ.  Didn't see a single instance of attemps at line cutting.  
-   -My phone claims we hit 20,000 steps.  I'm not sure if it counted steps on the rides, but we did several laps around the park.
-   -I'm glad we went, but I'm in no rush to go back.
+-  Where the fuck did the paddle wheel boat go?  Those awful puns were a perfect way to rest for a little bit.  
+-  As a kid, I enjoyed the No Fear, Big Johnson and Coed Naked shirts.  As an adult, I realize that's a fad that we collectively can do without.
+-  No couples in matching outfits.  Even back then, I knew it was cringy.
+-  In general, people seemed to be dressed more appropriately than they were back in the day.
+-  Considerably more polite crowd than what I've seen at Six Flags NJ.  Didn't see a single instance of attemps at line cutting.  
+-  My phone claims we hit 20,000 steps.  I'm not sure if it counted steps on the rides, but we did several laps around the park.
+-  I'm glad we went, but I'm in no rush to go back.

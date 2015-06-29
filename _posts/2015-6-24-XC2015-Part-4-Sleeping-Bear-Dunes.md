@@ -30,5 +30,5 @@ We got up at a decent time on Wednesday, got ourselves packed up.  We headed ove
 Walking uphill on sand, much like pimping, ain\'t easy.  
 
 General thoughts:
-   -We used an atlas to find our way up there.  It was such a strange and novel experience we decided we are running no-nav for the whole trip.  #RoadTripHipsters
-   -I'm not a big fan of shoes and I will be avoiding them for as much of this trip as possible.  Pointy rocks and all.  #GetAJobYouFilthyBaldHeadedHippy
+-  We used an atlas to find our way up there.  It was such a strange and novel experience we decided we are running no-nav for the whole trip.  #RoadTripHipsters
+-  I'm not a big fan of shoes and I will be avoiding them for as much of this trip as possible.  Pointy rocks and all.  #GetAJobYouFilthyBaldHeadedHippy
