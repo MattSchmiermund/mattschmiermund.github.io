@@ -3,6 +3,8 @@ title : 2015 XC Trip - Part 4 - Sleeping Bear Dunes National Lakeshore
 layout : post
 ---
 
+Pictures to be added later.
+
 So, Meghan's last day of school was back on the 19th, but in exchange for several weeks of dog sitting for our two dogs, we agreed to watch all three of the beasts while my parents were at a wedding on the 26th.  In the meantime, we figured we could make the most of being in Michigan and still started our trip right away.  Part of that was the previous post on Cedar Part, and the next step was dipping our toes into camping for a single night before heading out on our \'big\' trip.
 
 I started thinking about what was in Michigan that I hadn't been to or seen.  I rmemebered some kid\'s presentation on Sleeping Bear Dunes back in fifth grade.  I assumed it was a state park, but once I started looking into it, I found that it was a National Lakeshore, which was perfect.  We were planning to buy our _America the Beautiful_ pass and being able to use that was going to save us some money.  

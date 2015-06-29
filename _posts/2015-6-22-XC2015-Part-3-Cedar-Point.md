@@ -3,6 +3,8 @@ title : 2015 XC Trip - Part 3 - Cedar Point
 layout : post
 ---
 
+Pictures to be added later.
+
 At some point back in the day we lived 15-20 minutes away from \"America's Rockin\' Rollin\' Coast\".  Season passes were in our stockings for each Christmas.  The first year there was the Summer after sixth grade.  At that point, the main draw of the park was getting over my fear the coasters and exjoying the addrenalin of those initial drops.  By our last year there, the summer after eighth grade, my main motivation for going was enjoying some relatively new freedom with friends.  We spent most of our time walking around and making embarassing attempts at talking to girls.  
 
 I have pretty fond memories of the place. 
