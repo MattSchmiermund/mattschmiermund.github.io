@@ -24,6 +24,7 @@ For a third day in a row, we had a very good breakfast, and then left Michigan a
 The only excitment with the drive was hitting something (maybe a plastic bucket) somewhere in Minnesota.  We pulled over and the only thing we could see leaking just appeared to be condensation from the AC.  Gas mileage was absolutely terrible.  The 80 mph speed limits in South Dakota didn't help anything.  Hopefully as we hit parks and hillier areas we'll see better numbers.  
 
 General thoughts:
+
 * As we hit the border of Minnesota, Meghan pointed at a body of water and asked if what I knew what it was.  \"Oh, that\'s lake 8,762 of 10,000\".  Later on this morning it occurred to us that it was the Mississippi.  I was promptly informed of how much of a jackass I am.  Fair enough.
 * We've already checked off 41/51 license plates. (DC counts.  I mean, not in Congress, but for our purposes.)  Meghan has no faith in finding Alaska or Hawaii.  Time _will_ prove her wrong.
 * We're already around too many people.
