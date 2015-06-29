@@ -22,6 +22,7 @@ The rain started pounding down on the roof while we in the show.  Thankfully, by
 By the time the show was over the rain was done we deciding that we were both pretty much done as well.  We opted for one more go on the Millenium Force before the line built up again and then we headed back to Michigan.
 
 Some general thoughts:
+
 - Where the fuck did the paddle wheel boat go?  Those awful puns were a perfect way to rest for a little bit.  
 - As a kid, I enjoyed the No Fear, Big Johnson and Coed Naked shirts.  As an adult, I realize that's a fad that we collectively can do without.
 - No couples in matching outfits.  Even back then, I knew it was cringy.
