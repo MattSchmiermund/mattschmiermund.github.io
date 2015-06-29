@@ -13,10 +13,17 @@ Thursday evening was a bit more exciting.  My brother was back to spend the nigh
 
 Friday included a good breakfast I don't even remember, walking the dogs out on the horse trails of Kensington Metro Park, more grocery shopping, an amazing meatball meal prepared by the A of AFR, boardgames, watching a variety of humorous youtube videos.  I stayed up too late and \"didn't drink enough water\", which screwed with our plans for leaving the next day, but it was good to catch up.
 
-On Saturday, we began preparing to leave and it quickly became apparent it just really wasn't going to happen.  The car needed to be emptied and repacked, I underestimated how much stuff in the house still needed to be organized and put together, plus I was trying to borrow various equipment from my Dad that I needed to learn how to use.  Instead, we settled on an early dinner, an early bedtime, and decided to leave in a more relaxed way on Sunday.
+On Saturday, after another great breakfast, we began preparing to leave and it quickly became apparent it just really wasn't going to happen.  The car needed to be emptied and repacked, I underestimated how much stuff in the house still needed to be organized and put together, plus I was trying to borrow various equipment from my Dad that I needed to learn how to use.  Instead, we settled on an early dinner, an early bedtime, and decided to leave in a more relaxed way on Sunday.
 
-We left Michigan at 12:30 and after a few driver switches and two stints in rest areas, we hit the Badlands National Park 21 and a half hours later.
+For a third day in a row, we had a very good breakfast, and then left Michigan at 12:30 and after a few driver switches and two stints in rest areas, we hit the Badlands National Park 21 and a half hours later.  Campsite claimed before 9AM their time, and now we are just finishing some food in a diner next to the primary visitor center.
 
+<img src="/assets/xc2015/badlandsSite.jpg" class="img-responsive" alt="Badlands Campsite">
+<h4><div class="small text-center"><em>Found a site with minimal neighbors.  We also have a picnic table with a roof/evening sun block.  I\'m not going to say whose finger that is in the picture, but I will tell you it\'s not mine.</em></div></h4>
 
 
 The only excitment with the drive was hitting something (maybe a plastic bucket) somewhere in Minnesota.  We pulled over and the only thing we could see leaking just appeared to be condensation from the AC.  Gas mileage was absolutely terrible.  The 80 mph speed limits in South Dakota didn't help anything.  Hopefully as we hit parks and hillier areas we'll see better numbers.  
+
+General thoughts:
+-  As we hit the border of Minnesota, Meghan pointed at a body of water and asked if what I knew what it was.  \"Oh, that\'s lake 8,762 of 10,000\".  Later on this morning it occurred to us that it was the Mississippi.  I was promptly informed of how much of a jackass I am.  Fair enough.
+-  We've already checked off 41/51 license plates. (DC counts.  I mean, not in Congress, but for our purposes.)  Meghan has no faith in finding Alaska or Hawaii.  Time _will_ prove her wrong.
+-  We're already around too many people.
