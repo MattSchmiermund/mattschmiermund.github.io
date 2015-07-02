@@ -1,5 +1,5 @@
 ---
-title : Wind Cave and Rocky Mountain NPs
+title : 2015 XC Trip - Part 7 -Wind Cave and Rocky Mountain NPs
 layout : post
 ---
 

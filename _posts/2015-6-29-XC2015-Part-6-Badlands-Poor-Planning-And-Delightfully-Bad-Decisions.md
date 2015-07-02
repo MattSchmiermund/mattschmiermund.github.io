@@ -1,5 +1,5 @@
 ---
-title : The Badlands, Poor Planning and Delightfully Bad Decisions
+title : 2015 XC Trip - Part 6 - The Badlands, Poor Planning and Delightfully Bad Decisions
 layout : post
 ---
 
