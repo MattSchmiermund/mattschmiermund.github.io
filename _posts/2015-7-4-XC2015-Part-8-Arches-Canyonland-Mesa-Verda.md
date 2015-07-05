@@ -1,5 +1,5 @@
 ---
-title : XC Trip 2015 - Part 8 - Arches, Canyonlands, Getting Started at Mesa Verda
+title : XC Trip 2015 - Part 8 - Arches, Canyonlands, Mesa Verda
 layout : post
 --- 
 
@@ -36,9 +36,10 @@ Had the best rehydrated package so far... Mountain House (I think?) Thai Chicken
 
 Our next tour was scheduled for this afternoon.  Visiting the Long House is a two hour tour and runs less often than the others.  It had a longer flat in and out hike before starting a descent with a steep stairway and then several switchbacks on an asphalt paved trail.  Touring this pueblo was a bit different as the tourguide got to go into some additional details.  She had apparently only been at the park for a few weeks, but she managed to field a continuous onslaught of questions.  In this tour we got to walk up behind some of their structures and see the spring that drained out of the back wall.
 
-With the tour being scheduled so late and leaving us with not much for drive time, we decided to stay another night in our campsite. 
+With the tour being scheduled so late and leaving us with not much for drive time, we decided to stay another night in our campsite. First time staying somewhere for more than one night.  Tomorrow morning we plan to hit four corners and head west from there.  Bryce Canyon and Zion are both possilities and we'll probably choose one of those in a combination with the Grand Canyon.
 
 Oh... right... water-based mishap #2.  We have left the tent open a couple of times during the day to prevent heat build up at the risk of getting hit by an afternoon thunderstorm.  We had been lucky, but it wasn't going to last forever.  We emptied the tent one Packtowl's worth of water at a time.  Thankfully, it went quickly, and the fire helped dry out our sleeping pads.
+
 
 
 
