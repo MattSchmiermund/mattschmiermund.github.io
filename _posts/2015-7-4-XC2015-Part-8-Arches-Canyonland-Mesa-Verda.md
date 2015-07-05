@@ -1,5 +1,5 @@
 ---
-title : XC Trip 2015 - Part 8 - Arches, Canyonlands, Mesa Verda
+title : XC Trip 2015 - Part 8 - Arches, Canyonlands, Mesa Verde
 layout : post
 --- 
 
@@ -17,16 +17,16 @@ We still drove a ways into the park and did see some impressive looking rocks (y
 
 We decided to skip on the free campground on the access road to The Needles.  Free would have been nice, but we still had several hours of daylight that would have been miserable heat there and wasted driving time.  
 
-We headed back into Colorado towards Mesa Verda.  The Atlas showed a campground just north of Cahone, CO, right on the edge of the San Juan NF.  We ended up behind a Truck/RV Trailer/Boat towing combination as we passed through a BLM recreation area and into the National Forest.  He looked like he knew where he was going and we tried to follow him a bit.  Despite his three part towing setup, and us going uphill on dirt roads, we quickly lost track of him.  After a fork or two in the road, we started seeing signs for things that were 20 miles away and we knew we had passed the campground we were looking for.  
+We headed back into Colorado towards Mesa Verde.  The Atlas showed a campground just north of Cahone, CO, right on the edge of the San Juan NF.  We ended up behind a Truck/RV Trailer/Boat towing combination as we passed through a BLM recreation area and into the National Forest.  He looked like he knew where he was going and we tried to follow him a bit.  Despite his three part towing setup, and us going uphill on dirt roads, we quickly lost track of him.  After a fork or two in the road, we started seeing signs for things that were 20 miles away and we knew we had passed the campground we were looking for.  
 
 Made it back to the BLM Recreation area that we had passed earlier, and found there was a campground there.  We had been pretty happy with the half full campground the night before, but this place had two other people staying there.  Vauled toilettes, manual pump water (didn't try it, no idea if it would be considered potable or not), picnic tables and was right next to a slowly moving river.  Once again, a self pay station and a price tag of $8.
 
 Unfortunately, our 5 gallon collapsable water jug ended up tipping over and the valve isn't quite perfect.  Some of Meghan\'s luggage ended up wet and that was the first of any of our water-based mishaps.  Soup for dinner is getting old, but it was significantly better than the dehydrated \'Breakfast Skillet\' packaged meal we had the next morning.  
 
-We only had an hour and a half left to get to Mesa Verda we got up pretty early on Friday, so we relaxed a bit that morning.  I picked up a $4 pour-over coffee funnel to compenstate for the non-functional aeropress and made our first camp coffee of the trip.  With the feeling of having time to spare, we emptied most of the car and repacked everything.  It was badly needed and I'm sure we'll have to do it again before the trip is over. 
+We only had an hour and a half left to get to Mesa Verde we got up pretty early on Friday, so we relaxed a bit that morning.  I picked up a $4 pour-over coffee funnel to compenstate for the non-functional aeropress and made our first camp coffee of the trip.  With the feeling of having time to spare, we emptied most of the car and repacked everything.  It was badly needed and I'm sure we'll have to do it again before the trip is over. 
 
 The following needs to be mentioned:
-Meghan had done a project on Mesa Verda in the later years of elementary school.  As part of her assignment, she was supposed to create some kind of visual representation of the park.  While the rest of us would be looking to a shoebox, construction paper, and a tub of playdoh, Meghan was busy getting her 3\'x2\' sheet of plywood, chicken wire, and a bucket of spackle ready.
+Meghan had done a project on Mesa Verde in the later years of elementary school.  As part of her assignment, she was supposed to create some kind of visual representation of the park.  While the rest of us would be looking to a shoebox, construction paper, and a tub of playdoh, Meghan was busy getting her 3\'x2\' sheet of plywood, chicken wire, and a bucket of spackle ready.
 
 Anyway... when we first started talking about this trip, visiting this park was the only requirement Meghan had and we\'re planning on spending some extra time here.
 
