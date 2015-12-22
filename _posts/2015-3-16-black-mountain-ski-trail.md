@@ -1,6 +1,7 @@
 ---
 Title : Black Mountain Ski Trail
 layout : post
+tags : [skiing, backcountry, outdoors, white mountains, earning turns]
 ---
 
 Location : Jackson, NH<br/>

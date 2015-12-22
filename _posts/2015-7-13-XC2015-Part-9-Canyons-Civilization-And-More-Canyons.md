@@ -1,6 +1,7 @@
 ---
 title : XC Trip - Part 9 - Canyons and Civilization and More Canyons
 layout : post
+tags : [2015 Road Trip, poker]
 ---
 
 _I've tried writing this post several times now.  It started out being dated July 6th.  I was chipping away at it, but never really catching up.  It covers a lot._  

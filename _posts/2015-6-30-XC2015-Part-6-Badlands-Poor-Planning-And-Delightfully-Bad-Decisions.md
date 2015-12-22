@@ -1,6 +1,7 @@
 ---
 title : 2015 XC Trip - Part 6 - The Badlands, Poor Planning and Delightfully Bad Decisions
 layout : post
+tags : [2015 Road Trip]
 ---
 
 After our nearly straight through drive and laying claim to a campsite so early we (or at least I) had a sense of having all the time in the world.  After breakfast we doubled back to where we entered the park and stopped at some of the scenic points where it seems to be OK-ish to walk around on the buttes (or spires?  I don't know, I\'m not a rock-doctor).  Stopped frequently as we drove through the Badlands Scenic Loop and then started heading west.  The plan was to do a drive by of Mount Rushmore (even with a NP pass, the parking lot was built and is maintained by an independant third party, so they charge for parking...), and then head a bit further south to Wind Cave NP.  We figured something like an hour to get there.  Unfortunately, it was closer to two.  
@@ -38,5 +39,5 @@ General Thoughts:
 - Badlands Campground guests were way way way more quiet than what we experienced at Sleeping Bear Dunes.  It seemed like families were still having fun, but no youth groups and no kids felt the need to screech at the top of their lungs while riding bikes.
 - We are insanely over packed.
 - Despite being overpacked, I forgot a piece of my aero press which means no coffee and wasted space for the other parts and bean grinder.
--We have already done over 3,000 miles.
+- We have already done over 3,000 miles.
 

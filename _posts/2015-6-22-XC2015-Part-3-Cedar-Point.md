@@ -1,6 +1,7 @@
 ---
 title : 2015 XC Trip - Part 3 - Cedar Point
 layout : post
+tags : [2015 Road Trip]
 ---
 
 Pictures to be added later.

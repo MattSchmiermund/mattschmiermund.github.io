@@ -1,6 +1,7 @@
 ---
 title : 2015 XC Trip - Part 1 - The Beginning
 layout : post
+tags : [2015 Road Trip]
 ---
 
 Shortly after Meghan and I got married I helped someone move from Chicago to Washington State.  Along the way, we stopped at a few National Parks/Monuments/Grasslands and battlefield type places.  On my calls home, I told Meghan that the next year we should rent an RV and do a National Park tour.  That would have been the summer of 2010.  Life got busy, we didn't have the money to do it, and as a result, it just hasn\'t panned out.

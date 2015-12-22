@@ -1,6 +1,7 @@
 ---
 title : XC Trip - Appendix A - The License Plate Game
 layout : post
+tags : [2015 Road Trip]
 ---
 
 We are now up to 48/51 license plates and Meghan has gotten pretty serious about it.

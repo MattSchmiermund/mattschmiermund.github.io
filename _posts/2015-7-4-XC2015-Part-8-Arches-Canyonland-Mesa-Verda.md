@@ -1,6 +1,7 @@
 ---
 title : XC Trip 2015 - Part 8 - Arches, Canyonlands, Mesa Verde
 layout : post
+tags : [2015 Road Trip]
 --- 
 
 We left our Yeoman Park campsite at a decent time Wednesday morning. The car was still a damn mess, but we had taken out a minimal setuo the night before, so a full repack didn't seem very feasible.  Plus, we had a two-park day planned out.

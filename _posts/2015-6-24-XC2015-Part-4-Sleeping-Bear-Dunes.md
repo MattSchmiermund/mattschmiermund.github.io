@@ -1,6 +1,7 @@
 ---
 title : 2015 XC Trip - Part 4 - Sleeping Bear Dunes National Lakeshore
 layout : post
+tags : [2015 Road Trip]
 ---
 
 Pictures to be added later.

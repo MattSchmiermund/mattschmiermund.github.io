@@ -1,6 +1,7 @@
 ---
 title : 2015 XC Trip - Part 7 -Wind Cave and Rocky Mountain NPs
 layout : post
+tags : [2015 Road Trip]
 ---
 
 On Tuesday morning we departed our Badlands campsite with hopes of hitting both Wind Cave and Rocky Mountain NPs.  We\'re were slow out of the campsite and getting to Wind Cave seemed to take even longer than the two hours I mentioned in the previous post. We wanted to do one of the guided tours and for some reason, once I found out the one that started 40 minutes later was an extra 15 minutes longer, there was no way I was going to miss out and go on the earlier one. 
